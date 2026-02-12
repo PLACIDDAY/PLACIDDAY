@@ -3,7 +3,9 @@
 </p>
 
 ### <p align="middle">Placid or EMF | 18 Y.o.</p>  
-<p align="middle"><ins> under 15 pref. dni</ins></p> <br/>
+
+<p align="middle">C+H always allowed if i'm alone! ^_^</p>  
+<p align="middle"><ins> under 15 pref. dni</ins></p> <br/>  
 
 <br/>
 

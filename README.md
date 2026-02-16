@@ -2,7 +2,7 @@
   <img src="https://i.pinimg.com/originals/42/cb/8f/42cb8fd846dbe6845c47d1a81e6730bf.gif" />
 </p>
 
-### <p align="middle">Placid or EMF | 18 Y.o.</p>  
+### <p align="middle">Placid or EMF or Alice | 18 Y.o.</p>  
 
 <p align="middle">C+H always allowed if i'm alone! ^_^</p>  
 <p align="middle"><ins> under 15 preferably dni</ins></p> <br/>  

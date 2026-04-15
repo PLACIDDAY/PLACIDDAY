@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/42/cb/8f/42cb8fd846dbe6845c47d1a81e6730bf.gif" />
+  <img src="https://files.catbox.moe/bj0b3b.png" />
 </p>
 
 ### <p align="middle">Placid or EMF or Alice | 18 Y.o.</p>  

@@ -13,7 +13,7 @@
 [atabook](https://placidday.atabook.org/) . [strawpage](https://seamavbo.straw.page/)  
 [twitter](https://x.com/acolyteutyan) . [toyhouse](https://toyhou.se/PLACIDDAY)
 
-<p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at spawn in 18+ server.</p>  
+<p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at or below spawn in 18+ server.</p>  
 
 <br/>
 

@@ -9,7 +9,7 @@
 
 <br/>
 
-[rentry](https://rentry.co/seamaster)  
+[rentry](https://rentry.co/salarexvogali)  
 [atabook](https://placidday.atabook.org/) . [strawpage](https://seamavbo.straw.page/)  
 [twitter](https://x.com/acolyteutyan) . [toyhouse](https://toyhou.se/PLACIDDAY)
 

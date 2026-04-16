@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/bj0b3b.png" />
+  <img src="https://files.catbox.moe/umyoeh.gif" />
 </p>
 
 ### <p align="middle">Placid or EMF or Alice | 18 Y.o.</p>  
@@ -14,3 +14,9 @@
 [twitter](https://x.com/acolyteutyan) . [toyhouse](https://toyhou.se/PLACIDDAY)
 
 <p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at spawn in 18+ server.</p>  
+
+<br/>
+
+<p align="center">
+  <img src="https://files.catbox.moe/bj0b3b.png" />
+</p>

@@ -19,3 +19,5 @@
 
 <p dir="ltr" align="right">currently hyperfixated on; apollo</p>
 <p align="right">im not an enjoyer of romantic necrofencer but i love them platonically or queerplatonically.<br />i selfship myself with both <a href="https://rentry.co/rexvogali">apollo</a> and <a href="https://rentry.co/jarofdead">graves</a>, so refrain from saying anything mean about them! thank you.<br />🪦🎭🤺</p>
+
+![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=red)

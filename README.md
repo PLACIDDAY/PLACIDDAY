@@ -23,5 +23,5 @@
 ![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=red)
 
 <p align="center">
-  <img src="https://i.imgur.com/eJRnrkf.gif" />
+  <img src="https://i.ibb.co.com/9Dsbt4r/ezgif-38be2eeee8b903be.gif" />
 </p>

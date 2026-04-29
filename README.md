@@ -9,10 +9,7 @@
 
 <br/>
 
-[rentry](https://rentry.co/salarexvogali)
-[interests](https://rentry.co/thedarkestweb) . [listography](https://listography.com/itanilosahn) 
-[atabook](https://placidday.atabook.org/) . [strawpage](https://seamavbo.straw.page/)  
-[twitter](https://x.com/acolyteutyan) . [toyhouse](https://toyhou.se/PLACIDDAY)
+<p><a href="https://rentry.co/salarexvogali" rel="nofollow">rentry</a>&nbsp;<br /><a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://seamavbo.straw.page/" rel="nofollow">strawpage</a><br /><a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a>&nbsp;.&nbsp;<a href="https://toyhou.se/PLACIDDAY" rel="nofollow">toyhouse</a></p>
 
 <p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at or below spawn in 18+ server.</p>  
 

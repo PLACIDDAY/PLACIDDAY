@@ -9,7 +9,8 @@
 
 <br/>
 
-[rentry](https://rentry.co/salarexvogali) . [interests](https://rentry.co/thedarkestweb)  
+[rentry](https://rentry.co/salarexvogali)
+[interests](https://rentry.co/thedarkestweb) . [listography](https://listography.com/itanilosahn) 
 [atabook](https://placidday.atabook.org/) . [strawpage](https://seamavbo.straw.page/)  
 [twitter](https://x.com/acolyteutyan) . [toyhouse](https://toyhou.se/PLACIDDAY)
 

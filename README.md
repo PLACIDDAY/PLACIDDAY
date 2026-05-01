@@ -4,7 +4,7 @@
 
 ### <p align="middle">Placid or EMF or Alice | 18 Y.o.</p>  
 
-<p align="middle">C+H always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me</p>  
+<p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
 <p align="middle"><ins> under 15 preferably dni</ins></p> <br/>  
 
 <p align="center">

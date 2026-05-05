@@ -14,7 +14,7 @@
 </p>
 <br/>
 
-<p><a href="https://rentry.co/salarexvogali" rel="nofollow">rentry</a>&nbsp;<br /><a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://goldenixian.straw.page//" rel="nofollow">strawpage</a><br /><a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a>&nbsp;.&nbsp;<a href="https://toyhou.se/PLACIDDAY" rel="nofollow">toyhouse</a></p>
+<p><a href="https://rentry.co/salarexvogali" rel="nofollow">rentry</a>&nbsp;<br /><a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://goldenixian.straw.page/" rel="nofollow">strawpage</a><br /><a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a>&nbsp;.&nbsp;<a href="https://toyhou.se/PLACIDDAY" rel="nofollow">toyhouse</a></p>
 
 <p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at or below spawn in 18+ server.</p>  
 

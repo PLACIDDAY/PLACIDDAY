@@ -7,6 +7,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/cefxsq.png"alt="" width="424" />
 </p>
+<p align="middle">art by nekitoototo on twitter!</p> <br/>  
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
 <p align="middle"><ins> under 15 preferably dni</ins></p> <br/>  

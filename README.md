@@ -1,8 +1,12 @@
 <p align="center">
-  <img src="https://files.catbox.moe/umyoeh.gif" />
+  <img src="https://files.catbox.moe/e6f723.png" />
 </p>
 
 ### <p align="middle">Placid or Alice | 18 Y.o.</p>  
+
+<p align="center">
+  <img src="https://files.catbox.moe/yf40ep.png"alt="" width="424" />
+</p>
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
 <p align="middle"><ins> under 15 preferably dni</ins></p> <br/>  
@@ -26,5 +30,5 @@
 ![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=red&label=Bunnies)
 
 <p align="center">
-  <img src="https://i.ibb.co.com/9Dsbt4r/ezgif-38be2eeee8b903be.gif" />
+  <img src="https://files.catbox.moe/dmb9w9.png" />
 </p>

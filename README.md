@@ -1,11 +1,11 @@
 <p align="center">
-  <img src="https://files.catbox.moe/e6f723.png" />
+  <img src="https://files.catbox.moe/kv8x2s.png" />
 </p>
 
 ### <p align="middle">Placid or Alice | 18 Y.o.</p>  
 
 <p align="center">
-  <img src="https://files.catbox.moe/yf40ep.png"alt="" width="424" />
+  <img src="https://files.catbox.moe/cefxsq.png"alt="" width="424" />
 </p>
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
@@ -27,8 +27,8 @@
 <p dir="ltr" align="right">currently hyperfixated on; apollo, wuyang + mizuyang</p>
 <p align="right">mizuyang gives me a sense of comfort, so be nice to them around me.<br />unless tired, i'm always open to chat about shared interests!! i need more friends!!</p>
 
-![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=c0de54&label=Bunnies)
+![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=77d0fd&label=Bunnies)
 
 <p align="center">
-  <img src="https://files.catbox.moe/dmb9w9.png" />
+  <img src="https://files.catbox.moe/lg0qy7.png" />
 </p>

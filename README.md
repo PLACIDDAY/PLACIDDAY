@@ -20,8 +20,8 @@
 
 <br/>
 
-<p dir="ltr" align="right">currently hyperfixated on; apollo, wuyang</p>
-<p align="right">im not an enjoyer of romantic necrofencer or milkywaves.<br />refrain from talking negatively about my faves if we don't know each other.</p>
+<p dir="ltr" align="right">currently hyperfixated on; apollo, wuyang + mizuyang</p>
+<p align="right">mizuyang gives me a sense of comfort, so be nice to them around me.<br />unless tired, i'm always open to chat about shared interests!! i need more friends!!</p>
 
 ![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=red&label=Bunnies)
 

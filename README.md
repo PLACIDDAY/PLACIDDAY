@@ -5,9 +5,9 @@
 ### <p align="middle">Placid or Alice | 19 Y.o.</p>  
 
 <p align="center">
-  <img src="https://files.catbox.moe/yufyqc.png"alt="" width="424" />
+  <img src="https://files.catbox.moe/x8g8f7.png"alt="" width="424" />
 </p>
-<p align="middle">art by Grey5c on twitter!</p> <br/>  
+<p align="middle">art by direrite on twitter!</p> <br/>  
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
 <p align="middle"><ins> under 15 preferably dni</ins></p> <br/>  

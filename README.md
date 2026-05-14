@@ -21,7 +21,7 @@
 
 <p><a href="https://rentry.co/salarexvogali" rel="nofollow">rentry</a> .&nbsp;<a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://goldenixian.straw.page/">strawpage</a> . <a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a></p>
 
-<p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at the overwatch are in 18+ server.</p>  
+<p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at the overwatch area in 18+ server.</p>  
 
 <br/>
 

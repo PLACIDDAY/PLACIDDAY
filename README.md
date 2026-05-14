@@ -10,7 +10,7 @@
 <p align="middle">art by direrite on twitter!</p> <br/>  
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
-<p align="middle"><ins> under 15 preferably dni</ins></p> <br/>  
+<p align="middle"><ins> under 16 preferably dni</ins></p> <br/>  
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=obvi13z0i4n95r9bdvdas4abn&redirect=true">

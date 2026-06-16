@@ -28,12 +28,12 @@
 
 <p><a href="https://rentry.co/salarexvogali" rel="nofollow">rentry</a> .&nbsp;<a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://goldenixian.straw.page/">strawpage</a> . <a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a></p>
 
-<p dir="ltr">You can find me on the road above docks in safe server.<br />You can find me at the overwatch area in 18+ server.</p>  
+<p dir="ltr">18+ server Overwatch area always.<br />Rarely goes to safe.</p>  
 
 <br/>
 
-<p dir="ltr" align="right">currently hyperfixated on; apollo, wuyang + mizuyang</p>
-<p align="right">mizuyang gives me a sense of comfort, so be nice to them around me.<br />unless tired, i'm always open to chat about shared interests!! i need more friends!!</p>
+<p dir="ltr" align="right">currently hyperfixated on; overwatch + deadlock<br/>⤷ mizuki, wuyang, apollo.</p>
+<p align="right">always open to chat about shared interests!</p>
 
 <p align="center">
   <img src="https://files.catbox.moe/hhm3z7.png" />

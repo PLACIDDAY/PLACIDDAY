@@ -1,16 +1,19 @@
 <p align="center">
-  <img src="https://files.catbox.moe/kv8x2s.png" />
+  <img src="https://files.catbox.moe/hsm4yn.png" />
 </p>
 
-### <p align="middle">Placid or Alice | 19 Y.o.</p>  
+### <p align="middle">꒰ Placid or Alice | 19 Y.o. ꒱</p>  
 
 <p align="center">
-  <img src="https://files.catbox.moe/x8g8f7.png"alt="" width="424" />
+  <img src="https://files.catbox.moe/1r01eh.png"alt="" width="624" />
 </p>
-<p align="middle">art by direrite on twitter!</p> <br/>  
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
 <p align="middle"><ins> under 16 preferably dni</ins></p> <br/>  
+
+<p align="center">
+  <img src="https://files.catbox.moe/xeumv1.png" />
+</p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=obvi13z0i4n95r9bdvdas4abn&redirect=true">
@@ -28,8 +31,8 @@
 <p dir="ltr" align="right">currently hyperfixated on; apollo, wuyang + mizuyang</p>
 <p align="right">mizuyang gives me a sense of comfort, so be nice to them around me.<br />unless tired, i'm always open to chat about shared interests!! i need more friends!!</p>
 
-![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=77d0fd&label=Bunnies)
+![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=ff94ad&label=Bunnies)
 
 <p align="center">
-  <img src="https://files.catbox.moe/lg0qy7.png" />
+  <img src="https://files.catbox.moe/hhm3z7.png" />
 </p>

@@ -5,6 +5,10 @@
 ### <p align="middle">꒰ Placid or Alice | 19 Y.o. ꒱</p>  
 
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=PLACIDDAY&color=ff94ad&label=Bunnies" alt="Profile Vies" />
+</p>
+
+<p align="center">
   <img src="https://files.catbox.moe/1r01eh.png"alt="" width="624" />
 </p>
 
@@ -30,8 +34,6 @@
 
 <p dir="ltr" align="right">currently hyperfixated on; apollo, wuyang + mizuyang</p>
 <p align="right">mizuyang gives me a sense of comfort, so be nice to them around me.<br />unless tired, i'm always open to chat about shared interests!! i need more friends!!</p>
-
-![](https://komarev.com/ghpvc/?username=PLACIDDAY&color=ff94ad&label=Bunnies)
 
 <p align="center">
   <img src="https://files.catbox.moe/hhm3z7.png" />

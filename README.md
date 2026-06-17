@@ -28,7 +28,7 @@
 
 <p><a href="https://rentry.co/salarexvogali" rel="nofollow">rentry</a> .&nbsp;<a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://goldenixian.straw.page/">strawpage</a> . <a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a></p>
 
-<p dir="ltr">18+ server Overwatch area always.<br />Rarely goes to safe.</p>  
+<p dir="ltr">18+ server Overwatch area mostly.<br />Rarely goes to safe.</p>  
 
 <br/>
 

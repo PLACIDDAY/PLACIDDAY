@@ -13,7 +13,7 @@
 </p>
 
 <p align="middle">c+h always allowed if i'm alone! ^_^<br />i love talking to new people but i have very bad anxiety, be patient w me.<br />indonesian / english | mind my timezone!</p>  
-<p align="middle"><ins> under 16 preferably dni</ins></p> <br/>  
+<p align="middle"><ins> under 16 preferably dni</ins><br/>short and quick convos are welcomed. (ex, crowning)</p> 
 
 <p align="center">
   <img src="https://files.catbox.moe/xeumv1.png" />

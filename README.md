@@ -33,7 +33,7 @@
 
 <p><a href="https://goldenixian.straw.page/" rel="nofollow">strawpage</a> .&nbsp;<a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://riuki.straw.page/myyaoi">selfships</a> . <a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a></p>
 
-<p dir="ltr">18+ server Overwatch area mostly.<br />Rarely goes to safe.</p>  
+<p dir="ltr">Apparently I sit anywhere my friends are.<br />Say hi!</p>  
 
 <br/>
 

@@ -33,11 +33,11 @@
 
 <p><a href="https://goldenixian.straw.page/" rel="nofollow">strawpage</a> .&nbsp;<a href="https://rentry.co/thedarkestweb" rel="nofollow">interests</a>&nbsp;.&nbsp;<a href="https://listography.com/itanilosahn" rel="nofollow">listography</a>&nbsp;<br /><a href="https://placidday.atabook.org/" rel="nofollow">atabook</a>&nbsp;.&nbsp;<a href="https://riuki.straw.page/myyaoi">selfships</a> . <a href="https://x.com/acolyteutyan" rel="nofollow">twitter</a></p>
 
-<p dir="ltr">apparently i sit anywhere my friends are.<br />say hi!</p>  
+<p dir="ltr">apparently i sit anywhere my friends are.<br />say hi! or sign my ata pls pls pls</p>  
 
 <br/>
 
-<p dir="ltr" align="right">currently hyperfixated on; overwatch + deadlock<br/>⤷ mizuki, wuyang, apollo.</p>
+<p dir="ltr" align="right">currently hyperfixated on; overwatch, deltarune, deadlock<br/>⤷ mizuki, wuyang, noelle, apollo.</p>
 <p align="right">always open to chat about shared interests!</p>
 
 <p align="center">

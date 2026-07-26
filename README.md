@@ -37,7 +37,7 @@
 
 <br/>
 
-<p dir="ltr" align="right">currently hyperfixated on; overwatch, deltarune, deadlock<br/>⤷ mizuki, wuyang, noelle, apollo.</p>
+<p dir="ltr" align="right">currently hyperfixated on; overwatch, deadlock, deltarune.<br/>⤷ mizuki, wuyang, apollo, noelle, blue.</p>
 <p align="right">always open to chat about shared interests!</p>
 
 <p align="center">

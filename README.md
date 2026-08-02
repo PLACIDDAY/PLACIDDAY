@@ -2,11 +2,6 @@
   <img src="https://files.catbox.moe/hsm4yn.png" />
 </p>
 
-<p align="center">
-  <a href="https://artfight.net/~placid_day">
-  <img src="https://files.catbox.moe/5cv89v.jpeg"alt="" width="424" />
-</p>
-
 ### <p align="middle">꒰ Placid or Alice | 19 Y.o. ꒱</p>  
 
 <p align="center">

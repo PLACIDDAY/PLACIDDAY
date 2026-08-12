@@ -32,7 +32,7 @@
 
 <br/>
 
-<p dir="ltr" align="right">currently hyperfixated on; overwatch, deadlock, deltarune.<br/>⤷ mizuki, wuyang, apollo, noelle, blue.</p>
+<p dir="ltr" align="right">currently hyperfixated on; overwatch, deadlock<br/>⤷ mizuki, wuyang, casino, apollo.</p>
 <p align="right">always open to chat about shared interests!</p>
 
 <p align="center">
